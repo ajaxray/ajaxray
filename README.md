@@ -1,4 +1,4 @@
-![Anis Uddin Ahmad - Cover Photo](https://raw.githubusercontent.com/ajaxray/ajaxray/master/header.png)
+![Anis Uddin Ahmad - Cover Photo](https://raw.githubusercontent.com/ajaxray/ajaxray/master/header.jpg)
 
 ### Hi 👋 - Assalamu'Alaikum (Peace be upon you)! 
 
